@@ -1,1 +1,0 @@
-# AdilmagambetovAskar_IDA4PR
